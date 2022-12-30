@@ -1,28 +1,28 @@
 
 
 
-Privacy policy
+Biashara Connect Privacy Policy
 
-costumers ACCESSING, BROWSING OR OTHERWISE USING THE WEBSITE Biashara Connect.com, Missed Call Service or mobile application INDICATES user is in AGREEMENT with Biashara Connect vegetables & fruits Pvt Ltd for ALL THE TERMS AND CONDITIONS MENTIONED henceforth. User is requested to READ terms and conditions CAREFULLY BEFORE PROCEEDING FURTHER.
+Costumers ACCESSING, BROWSING OR OTHERWISE USING THE WEBSITE Biashara Connect.com, Missed Call Service or mobile application INDICATES user is in AGREEMENT with Biashara Connect vegetables & fruits Pvt Ltd for ALL THE TERMS AND CONDITIONS MENTIONED henceforth. User is requested to READ terms and conditions CAREFULLY BEFORE PROCEEDING FURTHER.
 
-User is the person, group of person, company, trust, society, legal entity, legal personality or anyone who visits website, mobile app or gives missed call or places order with Biashara Connect via phone or website or mobile application or browse through website www.Biashara Connect.com.
-
-
+User is the person, group of person, company, trust, society, legal entity, legal personality or anyone who visits website, mobile app or gives missed call or places order with Biashara Connect via phone or website or mobile application or browse through website www.biasharaconnect.co.tz
 
 
-Biashara Connect reserves the right to add, alter, change, modify or delete any of these terms and conditions at any time without prior information. The altered terms and conditions becomes binding on the user since the moment same are unloaded on the website www.Biashara Connect.com
+
+
+Biashara Connect reserves the right to add, alter, change, modify or delete any of these terms and conditions at any time without prior information. The altered terms and conditions becomes binding on the user since the moment same are unloaded on the website www.biasharaconnect.co.tz
 
 Biashara Connect is in trade of fresh fruits and vegetables and delivers the order to home (user’s desired address) directly.
 
 That any user who gives missed call/call for order on any number published/used by Biashara Connect.com, consents to receive, accept calls and messages or any after communication from Biashara Connect vegetables & fruits Pvt Ltd for Promotion and Telemarketing Purposes within a week.
 
-If a customer do not wish to receive any communication from Biashara Connect, please SMS NO OFFERS to 9512512125.
+If a customer do not wish to receive any communication from Biashara Connect, please SMS NO OFFERS to +255 752 960 397.
 
 Biashara Connect accept orders on all seven days and user will receive the delivery next day from date of order placement, as we at Biashara Connect procure the fresh produce from the procurement center and deliver it straight to user.
 
 There is Minimum Order value of Rs. 200. There are no delivery charges on an order worth Rs. 200 or above. In special cases, if permitted, order value is less then Rs. 200/– , Rs. 40 as shipping charges shall be charged from user.
 
-Biashara Connect updates the prices on daily basis and the price displayed at our website www.Biashara Connect.com, at the time of placement of order by user he/she/it will be charged as per the price listed at the website www.Biashara Connect.com.
+Biashara Connect updates the prices on daily basis and the price displayed at our website www.biasharaconnect.co.tz, at the time of placement of order by user he/she/it will be charged as per the price listed at the website www.biasharaconnect.co.tz.
 
 In the event, though there are remote possibilities, of wrong invoice generation due to any reason, in case it happens Biashara Connect vegetables & fruits Pvt Ltd reserve its right to again raise the correct invoice at the revised amount and same shall be paid by user.
 

@@ -1,46 +1,33 @@
-BIASHARA CONNECT PRIVACY STATEMENT
 
-Biashara Connect is completely committed to protecting the privacy of our site visitors and customers. Therefore we will never disclose information about our customers to third parties except where it is part of providing a service to you.
-Consent
 
-Your Consent is important to us too. Therefore we will never sell your name, address, e-mail address, credit card information or any other personal information to any third party without your consent. To fulfil your order, you must provide us with certain information, such as your name, email address, postal address, payment information and other details. You may also choose to provide us with additional personal information in case you contact us directly.
 
-Why we need your information and how we use it
-We rely on a number of legal bases to collect, use, and share your information, including:
+Privacy policy
 
-As needed to provide our services, such as when we use your information to fulfil your order, to settle disputes, or to provide customer support;
-When you have provided your affirmative consent, which you may revoke at any time, such as by signing up for my mailing list;
-If necessary to comply with a legal obligation or court order or in connection with a legal claim, such as retaining information about your purchases if required by tax law; and
-As necessary for the purpose of my legitimate interests, if those legitimate interests are not overridden by your rights or interests, such as providing and improving our services. We use your information to provide the services you requested and in my legitimate interest to improve my services.
-Information sharing and disclosure 
-Information about our customers is important to us. We might share your personal information for very limited reasons and in limited circumstances, as follows:
+costumers ACCESSING, BROWSING OR OTHERWISE USING THE WEBSITE Biashara Connect.com, Missed Call Service or mobile application INDICATES user is in AGREEMENT with Biashara Connect vegetables & fruits Pvt Ltd for ALL THE TERMS AND CONDITIONS MENTIONED henceforth. User is requested to READ terms and conditions CAREFULLY BEFORE PROCEEDING FURTHER.
 
-Business transfers. In case we sell or merge our business, we may disclose your information as part of that transaction, only to the extent permitted by law.
+User is the person, group of person, company, trust, society, legal entity, legal personality or anyone who visits website, mobile app or gives missed call or places order with Biashara Connect via phone or website or mobile application or browse through website www.Biashara Connect.com.
 
-Compliance with laws. We may collect, use, retain, and share your information if we have a good faith belief that it is reasonably necessary to: (a) respond to legal process or to government requests; (b) enforce my agreements, terms and policies; (c) prevent, investigate, and address fraud and other illegal activity, security, or technical issues; or (d) protect the rights, property, and safety of my customers, or others.
-Data Retention
-We retain your personal information only for as long as necessary to provide you with our services and as described in our Privacy Policy. However, we may also be required to retain this information to comply with our legal and regulatory obligations, to resolve disputes, and to enforce our agreements. We generally keep your data for the following time for a period of 7 years.
 
-Communication & Marketing
-If you are a customer, we may occasionally update you on our latest products, news and special offers via e-mail if you opt-in to receive email marketing communications from us. You can opt-out at any time.
 
-Website Statistics
-We may record statistics about the number of visitors to this Website or number of purchases made for improvement purposes. This is to help it improve the services to our customers and ultimately provide the most appropriate products.
 
-Protecting your security
-We may use personal information provided by you in order to fulfill necessary anti-fraud checks. This information may be disclosed to a credit reference or fraud prevention agency, which may keep a record of that information. This is done only to confirm identity for security purposes.
+Biashara Connect reserves the right to add, alter, change, modify or delete any of these terms and conditions at any time without prior information. The altered terms and conditions becomes binding on the user since the moment same are unloaded on the website www.Biashara Connect.com
 
-Third party websites
-Our site may contain links to and from other websites. If you follow a link to any of these websites, please note that they have their own privacy policies and we do not accept any liability for these policies.
+Biashara Connect is in trade of fresh fruits and vegetables and delivers the order to home (user’s desired address) directly.
 
-Your rights
-If you reside in certain territories, including the EU, you have a number of rights in relation to your personal information. While some of these rights apply generally, certain rights apply only in certain limited cases. We describe these rights below:
+That any user who gives missed call/call for order on any number published/used by Biashara Connect.com, consents to receive, accept calls and messages or any after communication from Biashara Connect vegetables & fruits Pvt Ltd for Promotion and Telemarketing Purposes within a week.
 
-Access. You may have the right to access and receive a copy of the personal information we hold about you by contacting me using the contact information below.
+If a customer do not wish to receive any communication from Biashara Connect, please SMS NO OFFERS to 9512512125.
 
-Change, restrict, delete. You may also have rights to change, restrict my use of, or delete your personal information. Absent exceptional circumstances (like where we are required to store data for legal reasons) we will generally delete your personal information upon request.
-Object. You can object to our processing of some of your information based on my legitimate interests and receiving marketing messages from us after providing your express consent to receive them. In such cases, we will delete your personal information unless we have compelling and legitimate grounds to continue using that information or if it is needed for legal reasons.
-Complain. If you reside in the EU and wish to raise a concern about our use of your information (and without prejudice to any other rights you may have), you have the right to do so with your local data protection authority.
+Biashara Connect accept orders on all seven days and user will receive the delivery next day from date of order placement, as we at Biashara Connect procure the fresh produce from the procurement center and deliver it straight to user.
 
-Contacting us
-Biashara Connect is committed to protecting your privacy. All personal information collected through this website will be held securely in accordance with the Article 16 of the Constitution of the United Republic of Tanzania. for any further queries or comments please contact us using our email: info@biasharaconnect.co.tz.
+There is Minimum Order value of Rs. 200. There are no delivery charges on an order worth Rs. 200 or above. In special cases, if permitted, order value is less then Rs. 200/– , Rs. 40 as shipping charges shall be charged from user.
+
+Biashara Connect updates the prices on daily basis and the price displayed at our website www.Biashara Connect.com, at the time of placement of order by user he/she/it will be charged as per the price listed at the website www.Biashara Connect.com.
+
+In the event, though there are remote possibilities, of wrong invoice generation due to any reason, in case it happens Biashara Connect vegetables & fruits Pvt Ltd reserve its right to again raise the correct invoice at the revised amount and same shall be paid by user.
+
+At times it is difficult to weigh certain vegetables or fruits exactly as per the order or desired quantity of user, hence the delivery might be with five percent variation on both higher or lower side of exact ordered quantity, user are hereby under takes to pay to Biashara Connect vegetables & fruits Pvt Ltd as per the final invoice. We at Biashara Connect understands and our endeavor is to always deliver in exact quantity in consonance with quantity ordered but every time it’s not possible but Biashara Connect guarantee the fair deal and weight to all its users. Biashara Connect further assures its users that at no instance delivery weights/quantity vary dramatically from what quantity ordered by user.
+
+If some product is not available or is not of good quality, the same item will not be delivered and will be adjusted accordingly in the invoice; all rights in this regards are reserved with Biashara Connect. Images of Fruits & Vegetables present in the website are for demonstration purpose and may not resemble exactly in size, colour, weight, contrast etc; though we assure our best to maintain the best quality in product, which is being our foremost commitment to the customer.
+
+All orders placed before 11 PM in the Night will be delivered next day or as per delivery date chosen.

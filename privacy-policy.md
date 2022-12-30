@@ -2,6 +2,7 @@ BIASHARA CONNECT PRIVACY STATEMENT
 
 Biashara Connect is completely committed to protecting the privacy of our site visitors and customers. Therefore we will never disclose information about our customers to third parties except where it is part of providing a service to you.
 Consent
+
 Your Consent is important to us too. Therefore we will never sell your name, address, e-mail address, credit card information or any other personal information to any third party without your consent. To fulfil your order, you must provide us with certain information, such as your name, email address, postal address, payment information and other details. You may also choose to provide us with additional personal information in case you contact us directly.
 
 Why we need your information and how we use it
@@ -15,6 +16,7 @@ Information sharing and disclosure
 Information about our customers is important to us. We might share your personal information for very limited reasons and in limited circumstances, as follows:
 
 Business transfers. In case we sell or merge our business, we may disclose your information as part of that transaction, only to the extent permitted by law.
+
 Compliance with laws. We may collect, use, retain, and share your information if we have a good faith belief that it is reasonably necessary to: (a) respond to legal process or to government requests; (b) enforce my agreements, terms and policies; (c) prevent, investigate, and address fraud and other illegal activity, security, or technical issues; or (d) protect the rights, property, and safety of my customers, or others.
 Data Retention
 We retain your personal information only for as long as necessary to provide you with our services and as described in our Privacy Policy. However, we may also be required to retain this information to comply with our legal and regulatory obligations, to resolve disputes, and to enforce our agreements. We generally keep your data for the following time for a period of 7 years.
@@ -35,8 +37,10 @@ Your rights
 If you reside in certain territories, including the EU, you have a number of rights in relation to your personal information. While some of these rights apply generally, certain rights apply only in certain limited cases. We describe these rights below:
 
 Access. You may have the right to access and receive a copy of the personal information we hold about you by contacting me using the contact information below.
+
 Change, restrict, delete. You may also have rights to change, restrict my use of, or delete your personal information. Absent exceptional circumstances (like where we are required to store data for legal reasons) we will generally delete your personal information upon request.
 Object. You can object to our processing of some of your information based on my legitimate interests and receiving marketing messages from us after providing your express consent to receive them. In such cases, we will delete your personal information unless we have compelling and legitimate grounds to continue using that information or if it is needed for legal reasons.
 Complain. If you reside in the EU and wish to raise a concern about our use of your information (and without prejudice to any other rights you may have), you have the right to do so with your local data protection authority.
+
 Contacting us
-BLINK is committed to protecting your privacy. All personal information collected through this website will be held securely in accordance with the Article 16 of the Constitution of the United Republic of Tanzania. for any further queries or comments please contact us using our contact form.
+Biashara Connect is committed to protecting your privacy. All personal information collected through this website will be held securely in accordance with the Article 16 of the Constitution of the United Republic of Tanzania. for any further queries or comments please contact us using our email: info@biasharaconnect.co.tz.

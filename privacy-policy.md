@@ -20,7 +20,7 @@ If a customer do not wish to receive any communication from Biashara Connect, pl
 
 Biashara Connect accept orders on all seven days and user will receive the delivery next day from date of order placement, as we at Biashara Connect procure the fresh produce from the procurement center and deliver it straight to user.
 
-There is Minimum Order value of Rs. 200. There are no delivery charges on an order worth Rs. 200 or above. In special cases, if permitted, order value is less then Rs. 200/– , Rs. 40 as shipping charges shall be charged from user.
+There is Minimum Order value of TZS. 5000. There are no delivery charges on an order worth Rs. 200 or above. In special cases, if permitted, order value is less then TZS. 5000/– , TZS. 2000 as shipping charges shall be charged from user.
 
 Biashara Connect updates the prices on daily basis and the price displayed at our website www.biasharaconnect.co.tz, at the time of placement of order by user he/she/it will be charged as per the price listed at the website www.biasharaconnect.co.tz.
 
